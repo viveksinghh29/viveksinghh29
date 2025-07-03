@@ -1,1 +1,1 @@
-just a kid runnning on dreams,data and training models.
+just a kid running on dreams,data and training models.
